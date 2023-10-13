@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LuizSkylegs
+- 👋 Hi, I’m @Luiz
 - 👀 I’m from Brazil, São Paulo.
 - 📫 How to reach me: Luiz@skylegs.com
 
